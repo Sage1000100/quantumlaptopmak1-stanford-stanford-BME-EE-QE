@@ -1,0 +1,11 @@
+<ios>
+<cout>
+<c++.file>
+
+skajcn;cja
+nscknsak;cn;jvnjn ewncjaicnkncpaijsdvj
+sndjcn;klsdn;cindnsiocuaisdncjscn;kj d;jcb;scjnasdjbcnsjcnsdjlncs dcbsjcnmsd cjnsdnjcnjsdncjkdcnjdcnsjdsncjksndcjkncjnsd
+cmsnckskncsdjcnsdjkcnkscdnjocnsdjncksod
+cnsdcnndscndmncsdlcjascsd'cnkodnccnsdklnisucjscnjkcjkncbjbcnjknsdcinscnsjdbckjscnscbnjsdnbcjs bcjdbcjisbdjkdsbjkbcjidbcijscbclijhbsdcjibsjicbjisbcjisbcjsbchjsbchbclscuibijsnjcibcnsibcsjincijbcsbjlancijdbcibnscjbsdjcsdbcjisbckjbcuislbciljdcbjsbciucsijneicubiceicbcjibecibejibcbeubcdsbcibceiuceubc
+
+<end>
